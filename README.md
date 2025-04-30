@@ -1,6 +1,12 @@
 # What Women Want In A Man
 
 # **مشخصات کتاب**  
+
+<p align="center">
+  <img src="https://s6.uupload.ir/files/untitled_taks.png" alt="Cover" width="300"/>
+</p>
+
+
 **عنوان کتاب:** *What Women Want in a Man* 
 
 **عنوان کامل کتاب:** *What Women Want in a Man, How to become the alpha male women respect, desire,and want to submit to*
@@ -13,6 +19,7 @@
 
 **مترجم:** [شایان شهبازی / Shayan Shahbazi]  
 
+**کاور کتاب:** شایان شهبازی
 ---
 
 ## **📖 درباره کتاب**  
