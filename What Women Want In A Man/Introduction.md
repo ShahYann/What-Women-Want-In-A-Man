@@ -1,3 +1,9 @@
+# به نام او که قلم را به دست گرفت و راه روشنایی را به حرکت درآورد
+
+<p align="center">
+  <img src="https://s6.uupload.ir/files/untitled_taks.png" alt="Cover" width="300"/>
+</p>
+
 # مقدمه
 میدونی چه حسی خوبه؟
 بهت میگم...
